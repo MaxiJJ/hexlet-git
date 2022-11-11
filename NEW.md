@@ -1,1 +1,0 @@
-Max study git
